@@ -1,3 +1,0 @@
-# test discord
-
-MTI2NjczMTk5OTYxNjU2NTI0OQ.GxbDme.ccVjQsvZcWSzM1rDJWsyO2rXgieX-jkRHcAkik
